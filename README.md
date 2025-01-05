@@ -11,7 +11,7 @@
 
 🔥618 VIP 活动价：500 元/年，额外加赠 68 天！
 
-活动链接： [https://v.115.com/618](https://v.115.com/618?f=union&share_code=a7c09b2f98fbca087ba250ca67f787c9#)
+活动链接： [https://v.115.com/618](https://v.115.com/618)
 
 
 购买 VIP 后，到 115APP ，生活频道，签到即可。
